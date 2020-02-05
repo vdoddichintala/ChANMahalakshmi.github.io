@@ -1,2 +1,2 @@
-# ChANMahalakshmi.github.io
+# smart banner
 up smart banner
